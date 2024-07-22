@@ -1,6 +1,7 @@
 
 # STUDENT INDUCTION PROGGRAME (2024-25)
  NAME - Ritvik Abrol 
+ 
  BRANCH - computer science and engineering [CSE}
 # MYSELF
 Hi everyone! I am Ritvik Abrol currently pursuing B.Tech in Computer science and engineering at Guru Nanak Dev Engineering College, Ludhiana. I completed my  12th grades at Vijay Higher Secondary school achieving 96%. We have come to a new phase of our life where our new journey begins, everyone is finding their own path and working hard for their goals. Let’s just all work hard hoping to see our future self as a 
