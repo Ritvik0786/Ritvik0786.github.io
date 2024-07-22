@@ -66,3 +66,35 @@ I personely really enjoyed it. Then, I went for my second lecture which was of m
 Then, I went to a canteen for lunch. After lunch, there was a breifing class of Rai sir. There he breifed us about how can we upload our file to Github and make a live link of it. I got a very good chance to correct my mistakes. Also, sir mentioned that however my task was not fully completed but my efforts were good enough. This made me feel so good and I decided that, by hook or crook, I will complete it. Then, finally, I completed it
 
 # DAY 4
+So, today was again our “INDUCTION PROGRAM”.
+The day started with the lecture of Dr. Randhir Singh sir, associate professor, breifed us about the major tasks which we all students have to do. He said that all the students must have to give Profficiency Test of English, Profficiency Test of Mathematics, Report making about your experience at GNDEC and INDUCTION PROGRAM and a E-certificate about any skill. These all tasks are useless for some people, but from my perspective, these all things can uplift are potential in a very good way. He also instructed us about the Github pages and how to make repositry on it in detail. he also mentioned about MARKDOWN.
+Then, Dr. Pyare Lal Garg, adviser to Punjab Congress president Navjot Singh Sidhu. Garg, 73, who retired as professor of paediatric surgery in 2002 and is known for his outspoken nature, has worked both with the Shiromani Akali Dal-Bharatiya Janata Party (SAD-BJP) as well as Congress governments in Punjab.
+First, He greeted everyone with good wishes and blessings, also feel grateful to GNDEC and faculty members of the college for giving him the oppurtunity to speak in GNDEC college amongst the students. Seeing the students, he reminded his old days and said about teaching which was full of togetherness in his time. Many new changes have been implemented in the world but human behaviour is still same and ability and power of attaining courage to be great , not just to be good or average.
+He said that the tantrums, bad things and bad thoughts of people about us was in their time also which makes him to question his integrity. He mentioned that we all are same as all others both at mentally and physically but the thing which is the differentiater is the change we implant both in ourselve and in surroundings. By saying that now he will going to give us a piece of his all learnings, he started to resist his old stories which were inspirational and motivational.
+
+# DAY 5
+Our daily schedule was sent by the teachers which was about a hall event, but it was in the afternoon. I went towards the hall but I checked my phone and our schedule got changed. So, I went to classes according to the new schedule.
+And it was glad to know that it was a quiz competition at class level on aptitude. The quiz was really great and fun. I was consists of many sports related, author names related and a lot more.
+After that, there was a quiz based on English knowledge which was beyond my knowledge, which is why I was not able to participate properly but I enjoyed.
+
+# DAY 6
+Today, there was one maths class and one UHV class. So, I woke up early as usual and went to college. The first class, which was of maths, was taken by Sanchit sir, in the seminar hall. The seminar hall was well organised room and had good and comfortable furniture for the students.
+Sir taught us about integration. First, we recalled about basics of it and then practiced some questions on variuos types of integrations.
+
+Then, our first lecture of UHV (Universal Human Values), taken by Rishi Kapoor sir, assistent professor.
+He introduced this subject first that what is UHV and how it is important. Then, He started the first topic which was “Human values/ Education/ Professional ethics. Then, He briefed us about how to answer a question of 10-15 marks. He also taught us “Understanding tha Harmony in family” and also about “Aspiration”.
+Then, there was a briefing class of Hardeep sir. After attending it, I went home.
+
+# DAY 7
+Today, There were both classes and induction program was going to held
+First section of day was in classes. The first lecture was of UHV by Rishi sir. He taught us about:
+Understanding the Human Being
+Briefing About “Self Body”
+Activities Of Self Body
+Response Of Self And Body
+Gross Misunderstanding
+Understanding Harmony In Self
+State Of Imagination
+
+Then, there was our peer interaction of “CANVA”. Canva is a free graphic design platform that’s great for making invitations, business cards, Instagram posts, and more. A drag and drop interface makes customizing thousands of templates simple and easy. Canva’s wide array of features allow you to edit photos without extensive photo editing knowledge or experience.
+Seniors briefed us about various features of canva. Then, they told us to make a post on our own and upload on to a google form given by them. I made a post using canva 
