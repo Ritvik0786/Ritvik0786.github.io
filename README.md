@@ -97,4 +97,4 @@ Understanding Harmony In Self
 State Of Imagination
 
 Then, there was our peer interaction of “CANVA”. Canva is a free graphic design platform that’s great for making invitations, business cards, Instagram posts, and more. A drag and drop interface makes customizing thousands of templates simple and easy. Canva’s wide array of features allow you to edit photos without extensive photo editing knowledge or experience.
-Seniors briefed us about various features of canva. Then, they told us to make a post on our own and upload on to a google form given by them. I made a post using canva 
+Seniors briefed us about various features of canva. Then, they told us to make a post on our own and upload on to a google form given by them. I made a post using canva  
